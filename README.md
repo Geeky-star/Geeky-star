@@ -4,4 +4,4 @@
 - 👯 I’m looking to collaborate on Javascript projects
 - 💬 Ask me about Javascript, Python, and Psychology
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am doing great
+- ⚡ Fun fact: I want to swim but I don't know swimming
